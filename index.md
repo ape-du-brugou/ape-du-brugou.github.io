@@ -1,6 +1,10 @@
 ---
 title: Accueil
 ---
-# L'Échappée Belle
+# Association des parents d'élève de l'école du Brugou
 
-L'Échappée Belle est **une association** qui a pour objet de soutenir et promouvoir des activités et des personnes qui travaillent autour de **valeurs de consentement, de bien commun et de prendre soin des personnes et de l’environnement**.
+L'APE du Brugou est une association collégiale qui a pour objectifs :
+  
+- Apporter une aide matérielle et financière aux écoles notamment en recueillant des fonds par le biais de diverses actions.
+- Animer la communauté de parents afin de créer du lien entre les divers acteurs de la sphère scolaire et périscolaire
+
