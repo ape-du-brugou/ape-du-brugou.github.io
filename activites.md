@@ -1,17 +1,24 @@
 ---
 title: Activités
 ---
-L’association cherche à œuvrer en collaboration avec des organismes publics, des organisations privées et des individus.
+L’association organise divers évènement pour animer le Faouët, la communauté de parent, les élèves, et surtout récolté des fonds pour aider financièrement l'école.
 
-## Nos activités
+## Programme prévisionnel 2023/2024
 
-A titre indicatif, les activités commerciales possibles sont (liste non-exhaustive) :
+- Gouter de rentrée (22 septembre à partir de 16h)
+- Foire aux livres [Ronan] (18-19 novembre)
+- Gouter de noël (22 décembre 2023)
+- Carnaval [Nico] (13 février 2024)
+- Troc & puces [Aurélie] (24 mars) 
+- pizza [Yannick] 
+- chocolat [Élodie] (noël et pacques)
+- jeux gonflable [Océane] (5 mai)
+- Fête de l'école [Frank] (début juin 2 ou 9 juin)
 
-- Accompagnement à la **création de structures** juridiques
-- Conception, développement et accompagnement de **produits innovants**
-- **Formation** d’enfants et d’adultes, par exemple dans les domaines de la communication non-violente, méthodologie lean et approche agile, les relations aux animaux, l’alimentation, la gestion de budget familial ou d’entreprise…
-- Projets à **impact environnemental positif**
-- Projets à **impact social positif**
-- Vente d’objets ou de denrées alimentaires, avec **impact humain ou environnemental positif**
+## Idée à placer ?
 
-zefijzef
+- Loto ? Voir avec [Hervé]
+- Atelier réparation de vélo ?
+
+Vous pouvez également nous proposé des idées, et mieux encore, venir organiser votre idée d'évènement avec nous !
+
